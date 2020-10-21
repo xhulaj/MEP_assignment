@@ -1,1 +1,1 @@
-##tvoja mama
+##tvoja mama ma rit jak stodolu
